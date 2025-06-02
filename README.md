@@ -1,5 +1,5 @@
 
-# Hi, I'm Kendall-Rose! 👋
+# Hi, I'm Rose! 👋
 
 
 
